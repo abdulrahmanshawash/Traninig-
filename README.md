@@ -1,3 +1,1 @@
 # Traninig-
-HOLA
-HOLE
